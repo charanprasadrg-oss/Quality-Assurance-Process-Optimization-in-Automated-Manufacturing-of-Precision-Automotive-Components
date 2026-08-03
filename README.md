@@ -1,0 +1,1 @@
+# Quality-Assurance-Process-Optimization-in-Automated-Manufacturing-of-Precision-Automotive-Components
